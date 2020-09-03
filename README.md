@@ -11,3 +11,6 @@ Maya Dahlke
 
 Adriana Donkers
 9-02-2020
+
+Lexi Weingardt
+9-2-2020
